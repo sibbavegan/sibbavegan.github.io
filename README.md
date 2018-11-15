@@ -1,2 +1,4 @@
 # sibbavegan.github.io
-risa
+risaeðlur lengi lifa - yours truly, sibba kong :*
+ps. stay vegan
+
